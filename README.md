@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yungs8n
+- 👀 I’m interested in Emulating 
+- 🌱 I’m currently learning nothing but i wanna try coding cus money
+- 💞️ I’m looking to collaborate on ...
+- reach me insta @s8nisyung
